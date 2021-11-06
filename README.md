@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @sanjay
+- 👀 I’m interested in BITCOIN  
+- 🌱 I’m currently learning in building more strategies in using binary signals to carry out trade.
+- 💞️ I’m looking to collaborate on meeting Experts in trading BITCOIN 
+- 📫 How to reach me Sanjayfarhan01@gmail.com
+- BITCOIN is a very lucrative business one should invest in.
+-I choose BITCOIN because in the future, it will be very useful than dollar. 
+-sanjayfarhan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- I feel its right time to accumulate more BITCOIN because it's Volatility is decreasing and best time to enter.
